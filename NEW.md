@@ -1,1 +1,0 @@
-buka buka buka
